@@ -4,7 +4,7 @@ Hey there, Chegg Expert!
 
 Are you ready to enhance your experience and boost your ratings? Unlock premium features on Chegg to gain access to expert CF score questions, completed solutions, and other exclusive offers that can help you excel in your field.
 
-🧨🧨 **Get Unlimited Analysis for just 2000 Rs for 1 Year**
+
 
 📱 **Contact Us on Telegram:** [@nxprodevbot](https://t.me/nxprodevbot)
 
